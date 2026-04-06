@@ -14,3 +14,12 @@
 
 ### 6. Pushing 
 <img width="783" height="254" alt="image" src="https://github.com/user-attachments/assets/000674a4-e684-4cb6-8c35-72ba8ae1d57c" />
+
+
+## Part 3 
+
+<img width="294" height="297" alt="image" src="https://github.com/user-attachments/assets/2fc0ec65-80e2-4ad4-b57f-4e185ab97546" />
+<img width="137" height="27" alt="image" src="https://github.com/user-attachments/assets/757e2dd1-e03e-4691-b441-d7ebe07600b7" />
+
+
+
